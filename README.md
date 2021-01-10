@@ -1,0 +1,2 @@
+# dokument-
+dokument dla tomka
